@@ -1,4 +1,4 @@
-# Companion
+# Companion No. 2
 V.2
 
 Companion No. 2 | OSC Comm. Device 
